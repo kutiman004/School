@@ -1,1 +1,1 @@
-# shcoll
+# Buguchu orto mektebi
